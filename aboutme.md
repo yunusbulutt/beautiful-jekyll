@@ -27,4 +27,5 @@ Benimle **iletişim kurmak** veya **sosyal medya üzerinden** takip etmek isters
 - **github** : [yunusbulutt](https://github.com/yunusbulutt)
 - **instagram** : [yunus.bulutt](https://instagram.com/yunus.bulutt)
 - **linkedin** [yunusbulutt](https://tr.linkedin.com/in/yunusbulutt)
-- **mail** : [info@yunusbulut.me](mailto:info@yunusbulut.me) & [bulutt1404@gmail.com](mailto:bulutt1404@gmail.com)
+- **gmail** : [bulutt1404@gmail.com](mailto:bulutt1404@gmail.com)
+- **mail** : [info@yunusbulut.me](mailto:info@yunusbulut.me)  
