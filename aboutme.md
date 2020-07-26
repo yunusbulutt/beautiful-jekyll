@@ -32,4 +32,3 @@ Benimle **iletişim kurmak** veya **sosyal medya üzerinden** takip etmek isters
 - **instagram** : [yunus.bulutt](https://instagram.com/yunus.bulutt)
 - **linkedin** : [yunusbulutt](https://tr.linkedin.com/in/yunusbulutt)
 - **gmail** : [bulutt1404@gmail.com](mailto:bulutt1404@gmail.com)
-- **mail** : [info@yunusbulut.me](mailto:info@yunusbulut.me)  
